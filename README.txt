@@ -1,0 +1,1 @@
+jbt a ovo radi
